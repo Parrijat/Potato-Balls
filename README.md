@@ -1,1 +1,4 @@
-# Potato-Balls
+Let's learn how to make potato balls, a yummy snack especisally for those cold rainy days and winter evenings!
+The recipe is really simple and quick. It doesn't even take 10 minutes! Even a child can easily make it, except for when you dip the balls in oil. That's when the hot oil drops can splash and burn your hands.
+Serve the potato balls with sauces like chilli sauce or tomato sauce or.. chutneys like pudina(mint) chutney or tomato chutney or badam chutney, or.... anything you like or can think of. Don't forget to make it look good by adding a few dhaniya(coriander) leaves on top of the balls.
+Good luck chef!!
